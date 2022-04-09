@@ -4,6 +4,3 @@ Voy a guardar:
   - Jupyter notebook  
   - Datos  
   - Proyectos de clase
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-AAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA anadnljisnflkvn 
-lksbfñlfvjkñsjnfero asñkrmfjñsnflñejgnfnlñmvlsmflkmsñnflñsfnkjdfnvw lkmflkkmwerñnlkeg
